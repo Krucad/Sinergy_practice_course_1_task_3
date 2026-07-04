@@ -1,0 +1,1 @@
+# Sinergy_practice_course_1_task_3
